@@ -18,6 +18,8 @@
 
 🚧 Status: Em construção... 🚀 🚧
 
+Se quiser acompanhar o que foi feito até agora em vídeo, só clicar [aqui](https://www.youtube.com/watch?v=hNTGj6oEzEk&t=2s)!
+
 </h4>
 
 
